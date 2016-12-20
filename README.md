@@ -1,2 +1,1 @@
-# HSEDC2016-Folio-wvunm
-Чистякова Даша
+# HSEDC2016-Folio-svyatoslava
